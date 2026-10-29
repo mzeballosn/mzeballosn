@@ -4,7 +4,7 @@
 
 :pencil:**Orientado a AI Engineer**
 
-:family:**El papá más feliz del munco !**
+:family:**El papá más feliz del mundo !**
 
 ### Vias de contacto
 
